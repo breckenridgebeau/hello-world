@@ -1,1 +1,2 @@
 # hello-world
+My name is Beau Breckenridge and I am a recent graduate from Oklahoma State University. I graduated with degrees in both Marketing and Sports Management. I am seeking to be a part of a company who is progressive and forward thinking where I can use my superb interpersonal skills and extensive knowledge of marketing aides in developing close relationships with clients as well as providing excellent service.
